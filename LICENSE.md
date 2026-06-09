@@ -1,4 +1,4 @@
-
+Experience adopt me like never before with secret adopt me Script, the #1 Script. Includes undetectable and auto-heal for unbeatable performance.
 
 
 
